@@ -7,4 +7,4 @@ I'm nafisahdrnn👋
 - 📫 How to reach me:
 <a href="https://www.instagram.com/<nafisahdrn>/" target="_blank">Instagram</a>, 
 <a href="https://www.linkedin.com/in/<durrotun-nafisah-99663a257>/" target="_blank">LinkedIn</a>
-- ⚡ Fun fact: I'm a single
+- ⚡ Fun fact: I'm a ...
